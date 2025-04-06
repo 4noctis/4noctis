@@ -15,7 +15,7 @@
 .𖥔 ݁ ˖  socmed : 
 ig : futabacats
 tt : futabacat
-dc : .childes
+dc : mikaells
 twt : ask 😠
 
 .𖥔 ݁ ˖  currently muted in pt sos..
