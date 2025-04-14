@@ -1,4 +1,4 @@
-![1000189415](https://github.com/user-attachments/assets/4e2544c2-2917-4c43-8989-255869e0ce33)
+![1000189415](https://pbs.twimg.com/media/E_hKVV9WQAY3cX3.jpg:large)
 
 ## mikael          ・         he . any
 
@@ -18,4 +18,4 @@ tt : futabacat
 dc : mikaells
 twt : ask 😠
 
-.𖥔 ݁ ˖  currently muted in pt sos..
+.𖥔 ݁ ˖  PROMPTIS SHIPPERS PLS INT
