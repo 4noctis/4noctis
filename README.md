@@ -1,4 +1,3 @@
-![1000189415](![1000201510](https://github.com/user-attachments/assets/67893126-4f79-4120-8775-df62b141706e)
-)
+![.](https://github.com/user-attachments/assets/67893126-4f79-4120-8775-df62b141706e)
 
 ever at ur side .
